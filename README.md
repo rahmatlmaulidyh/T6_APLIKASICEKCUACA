@@ -1,0 +1,2 @@
+# T6_APLIKASICEKCUACA
+ Rahmatul Maulidiyah_2210010391
